@@ -49,4 +49,4 @@ same mechanics from before...
 
 (do)6-ppl who also kin me int!!!
 
-#I have way too much more kinnies but I'm tired from writing and it's getting late now bye 🤓#
+# I have way too much more kinnies but I'm tired from writing and it's getting late now for me bye y'all 🤓 #
