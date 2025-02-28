@@ -1,6 +1,8 @@
 _
 
-this is about sonic the hedgehog.
+T H I S. I S. A B O U T. S O N I C. T H E. H E D G E H O G.
+
+_
 
 some things I want to clarify before you do it.(do and not do)
 
