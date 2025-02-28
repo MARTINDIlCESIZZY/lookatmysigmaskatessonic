@@ -1,4 +1,4 @@
-_ this is about sonic the hedgehog.
+_this is about sonic the hedgehog.
 
 some things I want to clarify before you do it.(do and not do)
 
